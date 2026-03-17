@@ -1,1 +1,1 @@
-[# project-](https://asainovrenat.github.io/project-/)
+https://asainovrenat.github.io/project-/
